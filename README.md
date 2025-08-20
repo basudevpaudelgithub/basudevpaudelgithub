@@ -45,7 +45,7 @@ I’m passionate about using **data** to solve real-world problems and building 
 ---
 
 ## ⚡ Fun fact
-I love exploring **fun facts** and surprising insights hidden in data 📊  
+I am thinking some fun facts  
 
 ---
 
